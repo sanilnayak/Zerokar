@@ -1,9 +1,11 @@
 # Zerokar
 
 
-fyiugukjukh
-d  cvukehjgfhoilkjdf
-gjrgokm,ad vbfsskhsfo;l/,vbeffngfs
+guegfihhoik
+dviyegfiuw
+hgfiudkgiuf
+gfiudghui
 
-dgfukgv
-fugufe
+ugfiuiohiorw
+dgfihiuwv
+iughfboiruhiro
