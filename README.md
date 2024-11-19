@@ -1,13 +1,11 @@
 # Zerokar
 
 
-uqegkufgeqifkjm,hfbjknmde
+guegfihhoik
+dviyegfiuw
+hgfiudkgiuf
+gfiudghui
 
-
-hefiljassgfioejffuefi
-
-fueigfuoeq
-jfuefgqekff
-fgqeiufgequf
-fugeuifhe
-fhegiolfheqbufe
+ugfiuiohiorw
+dgfihiuwv
+iughfboiruhiro
